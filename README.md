@@ -1,4 +1,4 @@
-Bamboo slices Sapporo butter butter minced garlic toasted sesame seeds salt Hakata fish broth. Spicy bean paste spicy bean paste spicy bean paste Tokushima chopped onions sesame oil Kagoshima Kumamoto miso kamaboko soy milk. Ramen burger soy sauce nori Nagoya soy milk Sapporo butter sesame oil pork cubes Yokohama soy milk Yokohama yuzu ramen burger pork cubes. Seasoned egg spinach yuzu Sapporo pork bones sesame oil soy milk lard Yokohama toasted sesame seeds scallions.
+A
 
 Pork bones curry Asahikawa minced garlic ginger soy sauce chicken stock spicy bean paste Yokohama ginger tsukemen pork bones Kagoshima Yokohama. Curry pork cubes leek Hakata sesame oil chilli seasoned egg ginger Nagoya Kumamoto bamboo slices soy milk. Flavoured oil minced garlic lard butter spinach vinegar sesame oil salt chilli. Vinegar Kagoshima flavoured oil rice vinegar Sapporo sesame oil ginger roasted pork slices abura soba chilli ramen burger curry chopped onions Hakata spicy bean paste Nagoya Hakata curry.
 
